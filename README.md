@@ -1,5 +1,7 @@
 # Memoria e Continuita'
 
+A mia Madre, "Donna" Vincenza Gulotta 
+
 Mia madre fu sempre:
 
 Dolcissima,
